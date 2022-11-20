@@ -1,2 +1,0 @@
-# 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
-mis primeros pasos en gif
